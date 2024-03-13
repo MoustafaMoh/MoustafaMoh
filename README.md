@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MoustafaMoh
+- 👀 I’m interested in Everything "Litrally"
+- 🌱 I’m currently learning "Java,python,R,Html,CSS,Figma,Excel"
+- 📫 How to reach me --> IG "moustaafaz"
+- ⚡ Fun fact: I'm from Egypt nd I'm 19 yo studying in the faculty of computer science Cyber sequrity department working as a call center representitive at optimum in the states but i'm working overseas.
